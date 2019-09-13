@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Karthik Sangeeta
+Hello, Welcome to great leaders from Karthik 
